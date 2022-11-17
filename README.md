@@ -35,6 +35,8 @@ From their debut album UltraElectroMagneticPop!, the Filipino rock band Eraserhe
 
 4. ***Huling El Bimbo***
 
+![EHEADS](https://media.interaksyon.com/wp-content/uploads/2022/09/eraserheads-huling-el-bimbo.jpg)
+
 _Album: Cutterpillow_
 
 _Released: 1995_
