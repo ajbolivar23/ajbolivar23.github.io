@@ -3,6 +3,8 @@
 - - -
 Ereaserheads
 
+![EHEADS](https://modernparenting.onemega.com/wp-content/uploads/2022/09/Our-90s-Hearts-The-Eraserheads-are-Reuniting-for-a-Concert.jpg)
+
 > #### Ereaserheads A 1989 formation of the Filipino alternative music group Eraserheads,. *Ely Buendia*, *Buddy Zabala*, *Marcus Adoro*, and *Raimund Marasigan* made comprised the band's lineup, which helped it become one of the most well-known and successful in the history of Filipino music. They are known as "The Beatles of the Philippines" and are credited with starting a second round of band invasions in Manila.
 
 ![EHEADS](https://bandwagon-gig-finder.s3.amazonaws.com/editorials/uploads/pictures/6971/content_ultraelectromagneticpop_eraserheads.jpg)
