@@ -1,15 +1,15 @@
 # ajbolivar.github.io
 ## My Favorite Band
 - - -
-### ***Ereaserheads***
+### ***Eraserheads***
 
 ![EHEADS](https://modernparenting.onemega.com/wp-content/uploads/2022/09/Our-90s-Hearts-The-Eraserheads-are-Reuniting-for-a-Concert.jpg)
 
-> #### Ereaserheads A 1989 formation of the Filipino alternative music group Eraserheads,. *Ely Buendia*, *Buddy Zabala*, *Marcus Adoro*, and *Raimund Marasigan* made comprised the band's lineup, which helped it become one of the most well-known and successful in the history of Filipino music. They are known as "The Beatles of the Philippines" and are credited with starting a second round of band invasions in Manila.
+> #### Eraserheads A 1989 formation of the Filipino alternative music group Eraserheads,. *Ely Buendia*, *Buddy Zabala*, *Marcus Adoro*, and *Raimund Marasigan* made comprised the band's lineup, which helped it become one of the most well-known and successful in the history of Filipino music. They are known as "The Beatles of the Philippines" and are credited with starting a second round of band invasions in Manila.
 
 ![EHEADS](https://bandwagon-gig-finder.s3.amazonaws.com/editorials/uploads/pictures/6971/content_ultraelectromagneticpop_eraserheads.jpg)
 
-- Ereaserheads Greatest Songs
+- Eraserheads Greatest Songs
 - - -
 1. ***Huwag Mo Ng Itanong***
 
@@ -43,7 +43,7 @@ _Album: Cutterpillow_
 
 _Released: 1995_
 
->Huling El Bimbo is considered by many as the best song Ereaserheads ever made, "Ang Huling El Bimbo" ('The Last El Bimbo') is a song composed by Ely Buendia of the Philippine pop/rock band Eraserheads, for their 1995 studio album Cutterpillow. It received extensive airplay after its release and ranked #2 on RX 93.1's "Top 20 OPM Requests of 1996".[1] It is the only Tagalog song included in the band's international compilation album, Aloha Milkyway (1998). The song's music video catapulted the band's success outside the Philippines by bagging the 'International Viewer's Choice Awards for Asia' at the 1997 MTV Video Music Awards.
+>Huling El Bimbo is considered by many as the best song Eraserheads ever made, "Ang Huling El Bimbo" ('The Last El Bimbo') is a song composed by Ely Buendia of the Philippine pop/rock band Eraserheads, for their 1995 studio album Cutterpillow. It received extensive airplay after its release and ranked #2 on RX 93.1's "Top 20 OPM Requests of 1996".[1] It is the only Tagalog song included in the band's international compilation album, Aloha Milkyway (1998). The song's music video catapulted the band's success outside the Philippines by bagging the 'International Viewer's Choice Awards for Asia' at the 1997 MTV Video Music Awards.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wR2Vk3HOIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
