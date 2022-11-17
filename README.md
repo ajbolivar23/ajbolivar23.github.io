@@ -13,6 +13,8 @@
 - - -
 1. ***Huwag Mo Ng Itanong***
 
+![EHEADS](https://i.ytimg.com/vi/CJQIGh98mvc/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBQyOcem9O63_hsl8OCXYtD-KmtSg)
+
 _Album: Cutterpillow_
 
 _Released: 1995_
@@ -21,6 +23,8 @@ _Released: 1995_
 
 2. ***Ligaya***
 
+![EHEADS](https://img.wattpad.com/cover/316435481-288-k851013.jpg)
+
 _Album: UltraElectroMagneticPop!_
 
 _Released: 1993_
@@ -28,6 +32,8 @@ _Released: 1993_
 >Vocalist Ely Buendia was inspired to write Ligaya after exchanging glances with a girl while waiting in line at a bank.The song tells the frustrations of a suitor, telling the person he is admiring of the benefits if they become official.
 
 3. ***Toyang***
+
+![EHEADS](https://miro.medium.com/max/1400/1*phGEBOnm1JdsrMPymJNOrg.png)
 
 _Album: UltraElectroMagneticPop!_
 
