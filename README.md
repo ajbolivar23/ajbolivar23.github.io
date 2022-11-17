@@ -1,7 +1,7 @@
 # ajbolivar.github.io
 ## My Favorite Band
 - - -
-Ereaserheads
+### Ereaserheads
 
 ![EHEADS](https://modernparenting.onemega.com/wp-content/uploads/2022/09/Our-90s-Hearts-The-Eraserheads-are-Reuniting-for-a-Concert.jpg)
 
