@@ -33,7 +33,7 @@ _Released: 1993_
 
 3. ***Toyang***
 
-![EHEADS](https://miro.medium.com/max/1400/1*phGEBOnm1JdsrMPymJNOrg.png)
+![EHEADS](https://c-fa.cdn.smule.com/rs-s66/arr/ba/03/767fed23-e0fa-4013-9a1d-1e3f0cbc44cd.jpg)
 
 _Album: UltraElectroMagneticPop!_
 
