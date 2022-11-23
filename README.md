@@ -13,7 +13,7 @@
 - - -
 1. ***Huwag Mo Ng Itanong***
 
-![EHEADS](https://i.ytimg.com/vi/CJQIGh98mvc/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBQyOcem9O63_hsl8OCXYtD-KmtSg)
+![EHEADS](https://c-fa.cdn.smule.com/rs-s66/arr/ba/03/767fed23-e0fa-4013-9a1d-1e3f0cbc44cd.jpg)
 
 _Album: Cutterpillow_
 
