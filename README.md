@@ -1,5 +1,5 @@
 # ajbolivar.github.io
-## My Favorite Band
+## Filipino Bands
 - - -
 ### ***Eraserheads***
 
@@ -10,7 +10,7 @@
 ![EHEADS](https://bandwagon-gig-finder.s3.amazonaws.com/editorials/uploads/pictures/6971/content_ultraelectromagneticpop_eraserheads.jpg)
 
 - Eraserheads Greatest Songs
-- - -
+
 1. ***Huwag Mo Ng Itanong***
 
 ![EHEADS](https://c-fa.cdn.smule.com/rs-s66/arr/ba/03/767fed23-e0fa-4013-9a1d-1e3f0cbc44cd.jpg)
@@ -58,3 +58,39 @@ _Released: 1995_
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wAT2e9jLsng" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/YAdZztibEY0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+
+### ***Parokya Ni Edgar***
+
+![EHEADS](https://lastfm.freetls.fastly.net/i/u/770x0/23a9f00bf476914b6cdadec0cc8f671b.jpg)
+
+> #### Parokya ni Edgar (lit: Edgar's Parish) is a Filipino band formed in 1993. The band is known for its original rock novelty songs and often satirical covers of popular songs both foreign and local. The band is adept at playing in various musical genres. Parokya ni Edgar has been referred to by local media outlets and numerous award-giving bodies as "Pambansang Banda ng Pilipinas" ("The National Band of the Philippines"). Despite having "Edgar" in the band's name, none of the members are named Edgar.
+
+![EHEADS](https://i.scdn.co/image/ab6761610000e5eb76ece97fbecb26ace087a952)
+
+### ***PAROKYA NI EDGAR SONGS***
+
+1. ***Harana***
+
+![EHEADS](https://i.ytimg.com/vi/4uzgcpSR-_4/maxresdefault.jpg)
+
+Artist: Parokya ni Edgar
+
+Album: Buruguduystunstugudunstuy
+
+_Released: 1997_
+
+>One dreamy, heart-tugging love song that endeared many of us to the Pinoy rock band Parokya ni Edgar is “Harana.” The message of this now classic ’90s ballad, about a guy who wouldn’t mind looking funny, or old-fashioned, while professing his romantic feelings, remains fresh and youthful despite the decades. The melody is still catchy, too—anyone can sing along with Chito Miranda after just a few playbacks. 
+
+2. ***Buloy***
+
+![EHEADS](https://i.ytimg.com/vi/qdGtuXTqpxs/maxresdefault.jpg)
+
+Released: 1996
+
+Artist: Parokya ni Edgar
+
+Album: Khangkhungkherrnitz
+
+>Buloy is a song by Parokya ni Edgar from their debut album Khangkhungkherrnitz. The song was the band's debut single that helped them explode into the Philippine music scene. The song is about a real person who tragically committed suicide. It was written by Chito Miranda.
+
