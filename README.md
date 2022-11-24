@@ -94,3 +94,6 @@ Album: Khangkhungkherrnitz
 
 >Buloy is a song by Parokya ni Edgar from their debut album Khangkhungkherrnitz. The song was the band's debut single that helped them explode into the Philippine music scene. The song is about a real person who tragically committed suicide. It was written by Chito Miranda.
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4uzgcpSR-_4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qdGtuXTqpxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
