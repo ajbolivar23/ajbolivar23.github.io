@@ -96,6 +96,20 @@ Album: Khangkhungkherrnitz
 
 >Buloy is a song by Parokya ni Edgar from their debut album Khangkhungkherrnitz. The song was the band's debut single that helped them explode into the Philippine music scene. The song is about a real person who tragically committed suicide. It was written by Chito Miranda.
 
+3. ***Bigotilyo***
+
+![EHEADS](https://i.scdn.co/image/ab67616d0000b27309b8ffba8282483b9986a77e)
+
+Artist: Parokya ni Edgar
+
+Album: Bigotilyo
+
+_Released: 2003_
+
+>This song was inspired by a true story of the band’s lead guitarist, Darius Semana. The idea came to mind when the band’s vocalist and lead guitarist talked about high school crushes. Darius suddenly remembered his crush in La Salle Lipa. He told how they became close and eventually become awkward because of their classmates teasing them. Darius told also how the girl’s partner did not attend their graduation and Darius became the partner of his crush. And that was the last time he saw her.
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/4uzgcpSR-_4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qdGtuXTqpxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_9Qi_tO7kio" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
